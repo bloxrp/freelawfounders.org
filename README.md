@@ -1,2 +1,0 @@
-# freelawfounders.org
-freelawfounders.org
